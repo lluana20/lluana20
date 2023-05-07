@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @lluana20 or Luana Lima or just Lua.
+- 🌱 I’m currently learning HTML and CSS.
